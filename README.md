@@ -1,1 +1,0 @@
-# zengo-affiliate-finder
